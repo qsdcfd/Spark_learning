@@ -9,4 +9,4 @@
 
 #### 책: 스파크 완벽 가이드!
 
-[Uploading 스크린샷 2023-04-14 오후 6.47.22.png…]()
+https://www.hanbit.co.kr/store/books/look.php?p_code=B6709029941
